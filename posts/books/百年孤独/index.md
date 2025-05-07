@@ -6,3 +6,11 @@
 书中所有的人都是孤独的。老何赛如此，乌尔苏拉亦如此，所有人都是如此，内心的孤独永远无法真正的同他人诉说，书中所有人都是孤独的个体。所以马尔克斯传达出来的观点是什么呢？
 
 看完之后感觉好震撼，百年的历史我竟然在试十几个小时内读完了，每个人物波澜壮阔的一生仿佛顷刻之间就跃然纸上，突然发现生命真的转瞬即逝，我们这一生可能在死后只有寥寥几笔~
+
+<div style="text-align: center;">
+  <img src="over.jpg" alt="总耗时" title="总耗时" width="300" height="600" />
+</div>
+
+<div style="text-align: center;">
+  <img src="characters.jpg" alt="人物图谱" title="人物图谱" width="300" height="600" />
+</div>
